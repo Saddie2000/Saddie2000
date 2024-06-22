@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Saddie2000
 - 👀 I’m interested in anything with computers, traveling and Motorcycles
-- 📫 How to reach me: Twitter / X: realsaddie
+- 📫 How to reach me: Twitter / X: saddie2000
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: im hating myself
 
